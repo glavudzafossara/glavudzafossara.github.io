@@ -1,2 +1,0 @@
-# glavudzafossara.github.io
-LP
